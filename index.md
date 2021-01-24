@@ -1,5 +1,5 @@
 ## - Progetto "La scuola che vorrei": sì o no?
-Ciao Casiraghiani! Siamo stati contattati ed invitati a partecipare ad un progetto che ha lo scopo di formulare suggerimenti al fine di migliorare il sistema scolastico italiano. Vi chiediamo cortesemente di leggere [qui](https://drive.google.com/file/d/1txu8fFUUvYHqka92TMBjVFGyxl83cWhe/view?usp=sharing), o direttamente nel modulo, le info del progetto e farci sapere se può essere un programma interessante al quale far aderire il nostro Liceo oppure se pensate non sia il caso di partecipare; [questo è modulo](https://docs.google.com/forms/d/e/1FAIpQLSevpjynln62qBnGPm3a3yJv9W9B2nxUXQwKubElMdSAEBjq4w/viewform?usp=sf_link) dove potete rispondere. _Ricordatevi di **uscire dall'account istituzionale prima di aprire i link**_. G R A Z I E <3
+Casiraghiani, vi chiediamo di completare un [breve sondaggio](https://docs.google.com/forms/d/e/1FAIpQLSdH8-a_Lo4UVS4TkBH38Y99VMWOTYa5pR_RChM9mvg_b6LJvw/viewform), realizzato dal gruppo Besana4future, a cui hanno risposto già migliaia di studenti, che permetterà di *raccogliere informazioni con lo scopo di migliorare il sistema scolastico*. Il sondaggio è ovviamente anonimo, e vi ruberà giusto due minuti di orologio. Grazie in anticipo a chi lo farà! :)
 
 
 
